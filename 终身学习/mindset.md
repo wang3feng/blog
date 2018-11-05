@@ -4,3 +4,9 @@
 
 [作者发表的文章](https://profiles.stanford.edu/carol-dweck?tab=publications)
 ![](http://wang3feng.cn/markdown-img-paste-20181105100948100.png)
+
+## 书本的主要内容
+
+## 对现实生活的启示
+
+## 如何知道行动
